@@ -214,4 +214,4 @@ MIR4 is offered as a full free version, with all features and updates included. 
 Start your epic journey in MIR4 today! Download now and experience all the excitement this MMORPG has to offer.
 
 ---
-**Last updated:** 2026-11-04 14:05:17 UTC
+**Last updated:** 2026-11-04 21:09:39 UTC
